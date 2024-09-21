@@ -1,2 +1,0 @@
-# FlorAmarilla
-Girasol para dedicar
